@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ReyizDeniZ
+- 👀 I’m interested in CODING
+- 🌱 I’m currently learning EVERYTHİNG
+- 💞️ Contact : denizkun#5699
