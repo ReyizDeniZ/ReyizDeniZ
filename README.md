@@ -1,4 +1,2 @@
-- 👋 Hi, I’m @ReyizDeniZ
-- 👀 I’m interested in CODING
-- 🌱 I’m currently learning EVERYTHING
-- 💞️ Contact : denizkun#5699
+- 👋 Hi, I’m Deniz Can
+- 💞️ Contact : Deniz Can#1019
